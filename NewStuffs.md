@@ -1,1 +1,1 @@
-This are some cool things.
+Some new stuffs.
